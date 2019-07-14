@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Long walks lmao
+- Open source
+- Disc
+- WOWOW
